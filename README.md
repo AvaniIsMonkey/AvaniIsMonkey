@@ -2,4 +2,4 @@
 
 - 📫 For contacts, please join my discord server and open a ticket there!
 
-htpps://lucentpvp.net/discord
+https://lucentpvp.net/discord
